@@ -1,0 +1,3 @@
+Fully understanding the work is important. Reason being, when you do something with understanding, you can not only help yourself, but others. You are able to explain the work to those who have trouble understanding.
+
+You become reliable, you dont just put effort into work just to put effort into work however, you can deliver your all, your work is able to stand out, because you would have the leisure to be creative about it. In addition to this, from my own personal experience, it is more easing and peaceful when you understand your work because I remeber what I understand longer that what I cram. I am able to incoporate the things I learn and understand into different situations.
